@@ -1,3 +1,1 @@
 agam
-
-selam kanka
