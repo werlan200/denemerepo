@@ -1,2 +1,1 @@
-maindeyizaga
-maindeyizagam2
+denemem2
